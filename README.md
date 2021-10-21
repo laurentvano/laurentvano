@@ -2,4 +2,4 @@
 - 👀 I’m interested by other things
 - 🌱 I’m currently learning ... yes
 - 💞️ I’m looking to collaborate on a new world
-- 📫 How to reach me ... no
+- 📫 How to reach me ... no, you don't
